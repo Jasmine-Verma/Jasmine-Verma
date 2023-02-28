@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Jasmine-Verma](https://github.com/Jasmine-Verma)
 
-- 📫 How to reach me **vermajasmine27@gamil.com**
+- 📫 How to reach me **jasmine20csu047@ncuindia.edu**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
